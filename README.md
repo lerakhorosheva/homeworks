@@ -18,10 +18,10 @@
 - музыка
 - фильмы, книги
 - гитара *failed* :guitar:
-- делаю фоточки листиков и __beautiful__ people (*here are some examples*) :arrow_heading_down:
+- делаю фоточки (*here are some examples*) :arrow_heading_down:
 
+  + ![](https://pp.userapi.com/c830308/v830308975/54ea0/iIjVlYMqR1k.jpg)
   + ![](https://pp.userapi.com/c840538/v840538768/17bae/Nm5C3R3KXXg.jpg)
-  + ![](https://pp.userapi.com/c836433/v836433665/4a1fa/VVBkAyTF8Cc.jpg)
 ###### Мое **расписание** :clock10: :
 
 Номер пары|Понедельник|Вторник|Среда|Четверг|Пятница|Суббота
